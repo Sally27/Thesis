@@ -1,1 +1,1 @@
-Thesis Repository - Slavomira Stefkova
+Thesis Repository for me
